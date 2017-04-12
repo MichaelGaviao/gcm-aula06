@@ -1,8 +1,8 @@
 Filmes que gosto:
 
-Gol
-Django
+O Homem do Futuro
+O chamado
 Cidade de Deus
 O Bom Dinossauro
 Os Oito Odiados
-Boi Neon
+Tropa de Elite
