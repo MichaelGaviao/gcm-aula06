@@ -1,8 +1,8 @@
 Filmes que gosto:
 
-O Homem do Futuro
-O chamado
+O Homem de Ferro
+Velozes de Furiosos
 Cidade de Deus
 O Bom Dinossauro
-Os Oito Odiados
+Homem Aranha
 Tropa de Elite
